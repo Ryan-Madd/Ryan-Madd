@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ryan-Madd
+- 💻 I'm a front end developer
+- 👀 Other than coding I’m interested in 🎮 Gaming 🎥 Movies/Binging Tv Shows 🏋️‍♂️ Exercising  
